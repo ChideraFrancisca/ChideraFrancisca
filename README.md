@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on open source projects and work with a good organisation.
 - 📫 You can reach via, mbafrancisca611@gmail.com
 - 😄 Pronouns: She
-- ⚡ Fun fact: I am also a Rgistered Midwife.
+- ⚡ Fun fact: I love learning.
 
 <!---
 ChideraFrancisca/ChideraFrancisca is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
